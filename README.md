@@ -7,5 +7,5 @@ Looking for chat: I would be happy to chat with you or meet you,
 Looking for roleplay: I want to roleplay
 and that's it for pony town
 Fandoms: Team fortress 2, Murder drones, Deltarune
-In pony town zones you will most likely find me: Tf2 zone, Murder drones zone, My island
+In pony town zones you will most likely find me: Tf2 zone, Murder drones zone, My island, My dear Friends Spy and Sniper <3
 And that's it Have a good Day/Afternoon/Night!
